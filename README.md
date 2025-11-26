@@ -112,9 +112,12 @@ Works on:
   * notifications
 *screenshot
 ![WhatsApp Image 2025-11-26 at 5 10 02 PM (3)](https://github.com/user-attachments/assets/3fdbfd5e-c55c-44ac-a526-ebb39c854f19)
+![WhatsApp Image 2025-11-26 at 7 59 58 PM](https://github.com/user-attachments/assets/ac654c38-8a42-4c67-924c-1f696ed562ab)
+![WhatsApp Image 2025-11-26 at 8 03 17 PM](https://github.com/user-attachments/assets/77113f6c-76db-4e92-ae1c-6ca63345a580)
 ![WhatsApp Image 2025-11-26 at 5 10 02 PM (4)](https://github.com/user-attachments/assets/db2127ab-f064-4e0e-a41d-64449b67461d)
 ![WhatsApp Image 2025-11-26 at 5 10 02 PM (5)](https://github.com/user-attachments/assets/2fce4318-d14c-4cdf-862a-d992e910c7f6)
 ![WhatsApp Image 2025-11-26 at 5 10 03 PM](https://github.com/user-attachments/assets/b08a3de7-1685-4987-9cfc-97dde09093bd)
+
 
 ---
 
