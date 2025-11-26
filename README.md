@@ -114,13 +114,7 @@ Works on:
 ![WhatsApp Image 2025-11-26 at 5 10 02 PM (3)](https://github.com/user-attachments/assets/3fdbfd5e-c55c-44ac-a526-ebb39c854f19)
 ![WhatsApp Image 2025-11-26 at 5 10 02 PM (4)](https://github.com/user-attachments/assets/db2127ab-f064-4e0e-a41d-64449b67461d)
 ![WhatsApp Image 2025-11-26 at 5 10 02 PM (5)](https://github.com/user-attachments/assets/2fce4318-d14c-4cdf-862a-d992e910c7f6)
-![Uploading WhatsApp Image 2025-11-26 at 5.10.03 PM.jpeg…]()
-
-
-
-
-
-
+![WhatsApp Image 2025-11-26 at 5 10 03 PM](https://github.com/user-attachments/assets/b08a3de7-1685-4987-9cfc-97dde09093bd)
 
 ---
 
